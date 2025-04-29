@@ -1,0 +1,1 @@
+# ma6270-quiz-2-solved
